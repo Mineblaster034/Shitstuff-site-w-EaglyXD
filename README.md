@@ -1,2 +1,2 @@
-# Shitstuff-site-w-EaglyXD
+# Shitstuff site w/ EaglyXD
 Just shitstuff for fun
